@@ -1,3 +1,3 @@
 # proyecto
 Tarea_entornos
-Hola Alex! :) xd
+Hola  Lore! xD
